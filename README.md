@@ -2,7 +2,6 @@
 Olá, bem vindos a nossa loja, Brown's Boutique, aqui você pode encontrar diversas coisas temáticas do Chorão por um preço acessível.
 Vendemos camisas, chaveiros, canecas, tẽnis, cd's, shape para skate, utensilios e muito mais.
 venha descobrir um novo mundo. 
-
 camisetas
 ![download (1)](https://github.com/user-attachments/assets/131e7f25-3ceb-4a77-96f5-ff7ef1edca94)
 ![charlie-brown-jr-100-charlie-brown-jr-abalando-a-sua-fabrica_b-6cab56e633ba03a61117098481980490-1024-1024](https://github.com/user-attachments/assets/a43eae3f-1056-4887-b421-1626729b9625)
