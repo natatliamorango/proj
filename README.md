@@ -3,12 +3,10 @@ Olá, bem vindos a nossa loja, Brown's Boutique, aqui você pode encontrar diver
 Vendemos camisas, chaveiros, canecas, tẽnis, cd's, shape para skate, utensilios e muito mais.
 venha descobrir um novo mundo. 
 camisetas
-![download (1)](https://github.com/user-attachments/assets/131e7f25-3ceb-4a77-96f5-ff7ef1edca94)![charlie-brown-jr-100-charlie-brown-jr-abalando-a-sua-fabrica_b-6cab56e633ba03a61117098481980490-1024-1024](https://github.com/user-attachments/assets/a43eae3f-1056-4887-b421-1626729b9625)
+![charlie-brown-jr-100-charlie-brown-jr-abalando-a-sua-fabrica_b-6cab56e633ba03a61117098481980490-1024-1024](https://github.com/user-attachments/assets/a43eae3f-1056-4887-b421-1626729b9625)
 ![images (9)](https://github.com/user-attachments/assets/df6408a5-3357-43da-b831-998c9bbe0474)
+![download (1)](https://github.com/user-attachments/assets/131e7f25-3ceb-4a77-96f5-ff7ef1edca94)
 Cds
-![download](https://github.com/user-attachments/assets/51aa49e0-0e7d-4532-9c56-5d0226407597)
-![br-11134207-7qukw-lk19uex6t3tv0d](https://github.com/user-attachments/assets/8980d359-50d1-4949-964d-56af074ace52)
-
 chaveiros 
 ![98261a0b44571ad25c51ebf0b106631c](https://github.com/user-attachments/assets/1f1fa7bf-b880-42a8-b2b6-2be3e671613a)
 ![485f7a916d4422f9727ecd18131aa494](https://github.com/user-attachments/assets/2888d535-2e6c-4fd7-9796-845ed95665d0)
